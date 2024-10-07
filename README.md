@@ -26,8 +26,8 @@ If you have an idea or project in mind, let’s connect!
 
 ### 📫 How to Reach Me
 Feel free to reach out on:
-- WhatsApp: [6287842470310](https://wa.me/6287842470310) 📱
-- Instagram: [mhmmd_ahyan](https://instagram.com/mhmmd_ahyan) 📸
+- WhatsApp: [My Whatsapp](https://wa.me/6287842470310) 📱
+- Instagram: [My Instagram]([https://instagram.com/mhmmd_ahyan](https://www.instagram.com/ahyanmhmmd) 📸
 
 ### 😄 Pronouns
 He/Him
